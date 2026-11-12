@@ -216,4 +216,4 @@ Universe at War: Earth Assault is available as a full free version, providing al
 Dive into the epic battles of Universe at War: Earth Assault today! Download your free copy now and defend Earth against the alien threat!
 
 ---
-**Last updated:** 2026-11-12 08:57:34 UTC
+**Last updated:** 2026-11-12 17:20:17 UTC
